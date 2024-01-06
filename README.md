@@ -1,6 +1,3 @@
-# bals
-## it is bals frfr
-aaaa
-tie
-# pwe
-# pwe
+## what if
+gusto ko na..
+# UMUWI!!!
